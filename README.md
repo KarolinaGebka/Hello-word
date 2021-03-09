@@ -1,2 +1,2 @@
 # Hello-word
-próba
+próba; na serio nwm co właśnie tworze. HEEEEEEEEEELP
